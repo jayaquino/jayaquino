@@ -1,4 +1,4 @@
-Hey There! 👋
+Hey! 👋
 
 - 📫 How to reach me: naquinojr@outlook.com
 
